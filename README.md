@@ -1,6 +1,6 @@
 # hi, i'm porta antiporta
 
-Head of Product at [Verdance](https://verdance.co) · Principal at [Matrix-Digital](https://matrix-digital.tech) · [LinkedIn](https://www.linkedin.com/in/michaelantiporta/)
+Head of Product at [Verdance](https://verdance.co) · Principal at [Matrix-Digital](https://matrix-digital.tech) · and the obligatory [LinkedIn](https://www.linkedin.com/in/michaelantiporta/)
 
 ---
 
